@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ninadgavhale
 - 👀 I’m interested in ... ARTIFICIAL INTELLIGENCE
-- 🌱 I’m currently learning ... 3 year student 
+- 🌱 I’m currently learning ... 3rd year student 
 - 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ... ninad1301@gmail.com
 
